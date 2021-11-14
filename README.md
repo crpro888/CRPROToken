@@ -1,2 +1,3 @@
 # CRPROToken
 this is the bscscan token 
+the CRP Project will immediately develop and run and carry out planned projects such as CRP coin utility that can be used to buy food and beverages at CRP merchants such as like in Bangi Kopitiam and of course via converting CRP coins to local crypto exchanges. The use of blockchain in the supply chain of the manufacturing industry where related parties will get a reward in the form of CRP coins in return for using the CRP ecosystem, the application of blockchain for listing on existing and developing marketplaces, so that the funds collected are clearly allocated.
